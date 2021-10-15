@@ -1,1 +1,1 @@
-# remed
+# remedial pts
